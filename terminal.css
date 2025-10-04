@@ -1,0 +1,19 @@
+/* Placeholder file for your custom settings. */
+/* You can get the color scheme variables from https://panr.github.io/terminal-css/ */
+:root {
+  --background: #110c0e;
+  --foreground: #d9d8dc;
+  --accent: #d89ea2;
+}
+/* Center all main content */
+main {
+    margin: 0 auto;
+    text-align: center;
+}
+
+h1 {
+    font-size: calc(var(--font-size) * 2);
+    letter-spacing: 0;
+    text-align: center;   /* <--- ADD THIS LINE TO CENTER */
+}
+
