@@ -24,5 +24,8 @@ I also write TTRPGs and Zines:
 I also have a tumblr:  
 ### https://therizinosaurus--cheloniformis.tumblr.com/
 
+I also watch movies!:
+### https://letterboxd.com/Therizinosaur/
+
 ---
-I, the personified blog, am currently thinking about **siphonophores**
+I, the personified blog, am currently thinking about **Siphonophores**
