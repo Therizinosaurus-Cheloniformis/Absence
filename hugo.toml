@@ -1,4 +1,4 @@
-baseURL = "http://localhost:1313/"
+baseURL = "https://Therizinosaurus-Cheloniformis.github.io/Absence/"
 languageCode = "en-uk"
 title = "Absence"
 theme = "terminal"
