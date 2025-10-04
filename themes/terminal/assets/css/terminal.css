@@ -1,0 +1,7 @@
+/* Placeholder file for your custom settings. */
+/* You can get the color scheme variables from https://panr.github.io/terminal-css/ */
+:root {
+  --background: #110c0e;
+  --foreground: #d9d8dc;
+  --accent: #d89ea2;
+}

@@ -1,0 +1,66 @@
++++
+title = "Chapter 10"
+date = "2025-01-11T17:54:34+01:00"
+#dateFormat = "2006-01-02" 
+showFullContent = false
+readingTime = false
+hideComments = false
++++
+
+Once the chatter died down, I waited for the inevitable explanation that I needed to better grasp and understand what had just happened. I was desperate for any information hat could tell me more about myself, and had nothing else to really live for anymore other than learning more about myself, and saving Wea. 
+
+The old otter, who I was told was named Moonwort, spoke again, "We shall have to start from before any of this Witch business got started to fully explain what we need you to help us with." He paused for a moment to make sure that I understood, and then went on with his tale.
+
+"Something like ten years ago, the peace in the woods began to become splintered. Slowly, the mustelids of the woods seemed to be being pushed out farther and farther to the edges of the forest, by a force nobody really understood.
+
+Soon, it was found that it was the work of the Western Conglomerate, who wished to gain a more total and complete control over the woods. Made up of the corvids, the Rodents and other small mammals and the Canines and Felids, the conglomerate soon, through a frankly unstoppable barrage of attacks on mustelid settlements and colonies, pushed them as far east as they could. For a time of roughly five years since it all began, the weasel forced were able to keep them away from the territory otters and weasels shared, but they soon slaughtered many thousands of the weasels and invaded our territory, forcing us underground and meaning that we could only ever fish in the river at night. The river enabled Otters to escape quickly if needed, but the Western conglomerate seems now to be trying to contact and become allies with the aquatic mammals, the dolphins and river-seals, who will aim to stop any hope of escape for the otters.
+
+We cannot be sure, but It seems as if more and more otter children have been going missing in the last couple of years, and so we elder otters fear that the Witches are somehow involved. Just last week, a young otter pup was stolen in the night and replaced with a lump of festering deer meat. We cannot let this go on if we want to be able to push back the Conglomerate, or even just survive."
+
+Moonwort finished his story, and looked at me intently, seemingly trying to see the same thing in me as Bloodroot had tried to. I was still confused. I felt as if it should have all made sense by now, but I still did not understand why they needed me. "Why do you need me?" I asked.
+
+"We do not need you, but you would be an asset. Your size would be helpful." Bloodroot said.
+"For what? What do you expect me to do for you?" I asked, still lost.
+"We want you to go with some of our otters to the Witches and see what is going on. We do not expect you to save any otter pups, or pups of you people, from the witches because we are not sure it can be done, but we at least hope for you to try."
+Now I knew what they intended for me to do, I was beginning to get slightly anxious. The witches seemed dangerous. and I did not want to risk going with creatures I did not know, and could not trust.
+"I do not need any others." I said, staunchly refusing any help.
+"Then you will not get your pack." Moonwort said, as confident as ever.
+I stuttered, unable to form a fully coherent response. I did not want to risk being betrayed. I did not want to risk death due to some otters I did not even know yet. It seemed ludicrous, but I had no other choice, nor no other information to go off. All of my possible futures seemed to lead in some way to the witches, and I could not refuse the offer to travel with creatures that would make my path to them more logical. I did not know how much longer I could keep wandering relatively aimlessly and without direction.
+"Ok then. Why not ask another creature?" I asked, still ever so slightly undecided.
+
+"Because, as far as I am aware, you are the only creature that a witch has taken, and then tried to put back. Something in you seems to be different."
+
+I felt as if I had lost my ability to breath for a moment. Me? Witches?
+
+"How can you be so sure I was taken by a witch?" I asked, still unable to believe what I had just been told.
+"How else would a baby find itself alone in the woods?" I had no reply.
+I was now apparently bound to the journey to the witches. I was sure that I could not have any hope of killing the Witches for what they had done or even hurting them in any meaningful way, but I needed to know more, and I was willing to risk my life to understand more about my past. These Otters seemed vulnerable too, their colony being attacked by both the witches and the conglomerate. They had shown my kindness, and I did not want to reply to this generosity with unhelpfulness.
+
+"I will help then." I said, and Bloodroot sighed.
+
+I was firstly re-introduced to Hawthorn, who would be going on the journey with me. She had apparently trained for many years with the Hedgehogs, before the war broke out to learn the art of herbalism, which she almost considered an art, a type of magic one could learn and use almost at will. Then I was introduced to a sprightly young otter named Foxglove, who was reaching the end of her warrior training, and wanted to practice her skills in the field. She was also the one who had stolen my bag, and promptly gave it back to me.
+I looked inside as soon as I had received it, to make sure that nothing had been stolen and I found that it did not have my notebook. 
+"Foxglove, where is my notebook?" I asked, hoping that she hadn't thrown it away or lost it in the few hours that she had had it.
+"I Have been reading it. It is very interesting! I'll go get it from my room." she said, and ran off up a tunnel, the noise of her feet slowly fading until I was faced with yet another member of my team. I hated that word. *Team*. I worked alone, others slowed me down.
+
+Then there was Nettle, a warrior who seemingly had been through an awful lot in the past. he spoke with gruff, low voice and intimidated me every time he walked near me, his dagger in the scabbard that hung off of his waist looking quite ferocious, as it glinted in the lamplight. He was also an expert on witches, being the only one who had ever encountered one before in the mound. His son had ben taken a day after being born, and he had chased whatever had taken him for a day and a night before collapsing out of tiredness and being dragged back to the colony. He told me that The thing that had taken his son, and he guessed all of the other children was something called a ghennen. After returning, he had talked to various creatures from across the forest who knew things about witches in order to learn all that they could about them, and so was now likely the most knowledgeable in the whole forest.
+He seemed to have taken a linking to me, because he told me everything he knew about Witches, which was at once surprisingly a lot while also being disturbingly limited. He told me that Ghennen were made by the Witches by Mixing mud with the blood of a possessed creature, and then animating them through the Witches' sheer will. These Ghennen, most commonly in the form of a dog-like creature that were pure black except for the glowing streams of blood that ran across their bodies, served as puppets for the witches, helping them to take children without being noticed. If they were noticed, the Ghennen had supernatural speed, and could outrun any creature as they ran at the speed of thought. he had learnt that The Witches used the children to become immortal, sapping their youth to power their life, having shed their physical forms when they metamorphosed. He also told me something I already knew, that the witches left in the place of their victims a mass of rotting meat. This, he told me, was in order to keep the natural balance of things.
+As once piece of meat was annihilated, another must be placed where it should still be.
+
+Shaken and horrified, Nettle left to prepare, and I was left further confused and terrified for the journey ahead.
+
+I was taken around the mound, while the preparations were happening by Bloodroot, who chatted almost constantly about the various goings on in the mound. I was told that a new room was being dug for the Stoats, who had been forced to leave their western home amongst the trees because the conglomerate was threatening to burn their trees down. the stoats would live in a side-section of the mound, and hopefully be able to find a new life in peace. Bloodroot told me that he used to be the chief warrior of the otters, having learned the ways of battle from the weasels years ago and used them to help to defend the otters from any small-scale battles they needed to fight, including one legendary battle against the Ants, who congealed into one seemingly giant mass and tried to cover the otters' residences and smother them to death. Bloodroot had used a mixture of pheromones he had collected from them and the natural currents of the rivers to trick them into falling into the water, and being carried away. Hailed as a hero Bloodroot had apparently grown to believe his abilities far outpaced what they actually were, and this led to an almost deadly fight against the corvids, where he lost his entire tail and part of his left hind-paw. He seemed terribly mournful and regretful about this, and advised me to be careful of any hubris I felt bubbling up through me, as it was something that always had to be monitored in order to stop it overflowing and burning the feet of the person who had created it.
+
+He also told me about how there had been whispers the mice trying to sneak into the Otter battlements, at the frontlines of the battle, and spying on their plans, but that, though many in the colony believed them to be unfounded, he thought that it was a very real possibility. He told me of the difficulty in properly communicating between species, how amongst the mustelids, it was as if they spoke in different accents, but other animals such as the Rats or Voles, though they could be understood, spoke essentially a different language. The fish, he told me, spoke entirely differently than any other creature, purely through thoughts that drifted through the water, and could only be captured by an otter if one entered your ear whilst asleep on the water. He told me some more about the otters, too. He told me how they had once been a great Trading civilisation, with great big barges and ships which sailed up and down the river, selling things to other species in the forest. Of course there was the ever-available fish, but also different cloths, rare insects, which were used as jewellery, and even ancient plant species, who were said to be able to talk. The civilisation had collapsed when the forest was cut down, separating different groups of otters, and crucially, the trees, which, feeling lonely, forgot how to speak and so could not tell the creatures of the forest their wisdom anymore. After this, fights began to occur, over which species owned different parts of the forest. Bloodroot told me how it was all ultimately stupid. No part of the forest can be separated from the whole - neither without dire consequences, nor ideologically. The trees would still whisper via their roots, and the ecosystem would collapse irreparable without all the creatures existing together. Though the mice may hate the mustelids for hunting them and their brethren, Bloodroot had no doubt that the mice would soon see the error of their ways when their populations grew too large to sustain. I grew to respect bloodroot more as I listened to him, but eventually he had to leave my by the entrance and go and take care of a some sort of emergency.
+
+After some time, Hawthorn and Nettle rushed towards me. 
+"We must go, there has been some sort of dire loss near the Western front, but we will join up with you and Foxglove when we can." Hawthorn said, rushing off into the woods with Nettle right afterwards. I felt slightly less confident now, being without either a herbalist or the person who knew the most about witches in the woods was bad enough, but now I was alone with the quite frankly annoying Foxglove, who I realised had still not returned with my notebook. I had found Foxglove quite... annoying must have been the word, though it was mainly the fact that she had stolen my pack, which made me feel as if she had had a role in separating me from Sew, though I knew that that was not the case
+
+I heard horns being played, and Foxglove , Moonwort and Bloodroot all gathered around the entrance. The sound was quite evidently a call, and Foxglove handed me back a slightly more weathered notebook than before, and left me wondering what she might have read inside.
+
+We were ushered out towards the entrance, where Moonwort and Bloodroot waved us a concerned goodbye.
+
+I took a deep breath, and started walking, with Foxglove leading the way.
+
+
+---

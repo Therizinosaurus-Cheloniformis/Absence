@@ -1,0 +1,8 @@
+baseURL = "http://localhost:1313/"
+languageCode = "en-uk"
+title = "Absence"
+theme = "terminal"
+
+[params.logo]
+  # Change the header text here
+  logoText = "Absence" 

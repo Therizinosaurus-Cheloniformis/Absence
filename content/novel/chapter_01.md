@@ -1,0 +1,87 @@
++++
+title = "Chapter 1"
+date = "2025-01-02T17:54:34+01:00"
+#dateFormat = "2006-01-02" 
+showFullContent = false
+readingTime = false
+hideComments = false
++++
+
+A Very certain sort of absence filled me as I stood alone.
+
+I could not really explain it. It almost ate away at my insides, leaving an emptiness no words of mine could ever hope to fully describe. I tried to use the pain it gave me to my advantage.
+
+I stood above the city, dangling from a spire of a building that reached up into the sky, so high that when I first saw it, I believed that it would anger the gods, showing off the audacity of the mortals beneath them to reach up so high, pierce the clouds and touch the gods.
+I have gotten use to it.
+In that moment, however, I was focused on on thing. The large, ostentatious house I looked onto. The family crest of a dragon intertwined with a dagger told me that it belonged to Welk, the man they called the king of thieves - he had started the thieves guild, and took it over when his companions mysteriously died. No thief dared question him. No thief dared anger him.
+Apparently, other than me.
+
+The house was six storeys tall, much taller than most of the other around it, it looked almost abnormal, and would have otherwise called the suspicion of the local town guards, but... well... the Town guards were owned and operated by Welk as well. He was essentially the king of this town. The town was called Dardaan, and was where I operated as a thief for something around five years. I arrived there young, and hoped to be young when I could escape and live a better life. Something to be proud of.
+
+I hoped that this heist would enable me to do that. I wanted to get enough gold to help me escape the infernal confines of the thieves' guild, and allow me to do what I always hoped to. Explore the world.
+
+I knew deep inside of me that as long as everything went to plan, It should have all been fine. Welk should never have known I ever took anything from him, and I should have been able to escape, without ever having to return to the city. It should have all been fine.
+
+I was alone. the street below me was relatively quiet, and I find myself wandering off into my thoughts every so often, waiting for the town bells to ring, to give me the signal to go. I do not like relying on those around me. I find them fickle, I find them untrustworthy. I know that I can only ever trust myself. In this profession, especially, you never really know who has your back - or who is going to stab you in it.
+
+Once the bells rang to tell me that the afternoon had started, I peeked carefully over the edge, and see Welk and the rest of his family walk out of the building, chatting to each other incessantly and letting their tired-looking servant close the door behind them.
+It is time.
+
+I quickly opened by backpack, unbuttoning the brass buttons and lifting open the leather lip at the top, to reveal my supplies. Inside of the bag, I had a multitude of supplies, all sourced out of the Thieves' store. I smirked to myself. I was using Welk's own equipment to steal from him.
+
+I pulled out the rope, wound tightly out of the Rakk grass that grows in western Meldew. It was scratchy and tended to give me rashes, but there was a reason that it was the preferred rope for burglary. It was as strong as a bar of iron, and would have held up a baby paraceratherium (I have been told). As a relatively small Halfling, I did not need to worry about falling.
+
+I looped the rope into a small loop, fastening it with a slipknot I was taught by an old friend of mine, back when we were till children and our morals did not have to fight with our desperation on a daily basis. Theft is difficult, but the guilt you feel afterwards is exhausting. I tested the loop out on a nearby pillar, looping it around the pillar and then pulling tight. I found that it was strong, and carefully unloop it, ready for the real thing. I carefully looked towards the house, and saw a small hook above the top window, usually used to pull up furniture. I attached the loop of rope to a rock, and used my handy sling Harfl to shoot the rope across to the hook.
+It missed once, But I did not give up, I pulled the rope back and use a different pebble to try again. This time, It worked, and the loop of rope hooked onto the hook, and the pebble tumbled down to the street below and hit a discarded pot, making a dangerously loud clanking sound, and making me wince.
+I pulled the knot tight, and wrapped the rope around my wrist.
+
+I took a deep breath. I closed my eyes. I stepped off the edge.
+
+I swung precariously across the gap; my body slammed into the wall on the other side, and my eyes were forced open by the searing pain that soon dulls into a slow throbbing  on my left side.
+I looked around for one last time, careful to look for any pedestrian who i might have to *deal with* in some way in order to prevent me from getting caught. Luckily, there was nobody there.
+
+I pulled myself up the rope, carefully and as silently as I could manage. The rope purned my hands as it rubbed against them almost with a tremendous hunger, and eventually wore away the skin on my left hand, leaving a raw wound with blisters around it. Once I got to the top of the window, I tried to push it open.
+
+All of a sudden, I saw a large black shape making its way towards the room I was looking into. I steadied my breathing, and then pulled the rope to one side, and ducked under the window ledge. I peered carefully over the side of the ledge, and saw the tires servant from before, wearily cleaning up the room. He put pillows where they were supposed to be, picked up bits of paper otherwise chucked haphazardly on the floor, and closed the curtains.
+I sighed a sigh of relief. He had not seen me.
+Once I was sure that he had left, I pulled myself up to the ledge, and gingerly pushed the window open. A normal Human would not have been able to pass through the gap, but my body was able to slip in perfectly fine. I put my feet down onto the carpet. It was luxuriously soft. it was a pale purple colour, likely coloured with the shells of a million snails. Welk sure knew how to show off his wealth. He was not subtle about thinking of himself as a king either.
+
+I immediately began rummaging around the room, like a rat looking desperately for food of some sort, I looked for any sort of gold. I at first looked under his bed. I foudn nothing there apart from a pair of ruby-encrusted shoes, and a painting of an old man. I then looked in his cupboards, I found all of his clothes (discustingly opulent, as expected) and a set of pearl necklaces, in different sizes and colours. I chose not to take those - it wopuld be too obvious.
+
+i soon realised that there was no great stash to be found, and founf myself growing increasingly dejected. However, I realised that I was apporaching the problem entirely incorrectly. This was no ordinary burglary - this was the house of a Master thief, someone who has years of expereince both hiding things, but also looking for thigns to steal. He would never *hide* anything in the conventional sense. It would always be in plain sight. Out in the open, where nobody would expect it.
+
+I looked under a glass vase I found, then behind a painting of some sort of large ground sloth, but still I found nothing, and I wondered whether Welk had even actually kept anything in his home, or whether it was stored somewhere far away in a place i could not even dream of finding. The chandelier above my head shone down its flickering light constantly, and it began to annoy me. I turned the handle I found for it incredibly gently, as not to make a sound, until it has come down to the ground. For a second, I could not quite believe my luck.
+I had done it.
+inside of the chandelier, was a small chest, rather plain looking and smaller than I would have expected, but branded with the thieve's guild crest. It was the crest used on some of the most important documents, those which held the codes for the vaults which held the treasures that the guild had pilfered over the years.
+I stuffed the box into my coat pocket, and quickly began putting everything back as it was. I heard a door in one of the lower floors opening, and managed to crawl out of the window just in time.
+I lowered myself down from the top, and onto street level, the cobbled stones giving me a firm surface to run on. I put the box in my bag, switched out my shoes (you can never be too careful) and I ran.
+I ran back to my quarters in the outskirts of the city. I shared these rooms with oher thieves who did not earn enough yet to buy their own homes. I shared my room with two other thieves, and it was located in the cellar of a drinker's hovel. Every day and every night, it stank of the most putrid rotgut you could imagine, but we were provided food and other neccesities, so I came to learn to live with it. Sometimes, drunken patrons would accidentally stumble across the trap door that seperated us from the rest of the world, but we were explained away as suppies, and the patrons normally forgot the other day.
+The one thing I am not grateful for, however, is the terrible curse that the Hovel brought on me.
+Gambling.
+
+I had never gambled before I came to live in the hovel, but one of my fellow thieves had a penchant for playing cards, and soon so did I. I had eventually built up so much debt that I could no longer afford to leave the town, for fear of the money collectors hunting me down and selling me to the bone-melters to reimburse my debts.
+I have not exactly been truthful with you.
+yes, though I had wanted to expolore the world with Welk's money, this was really a lie I told my self to delude myself into thingking - no, believing - that I was doing this for the right reasons. I was actually driven by need to pay back the debts, remove the stone on my back that felt as if it was slowing down by breathing and trapping me where I was.
+
+The hovel was just as filthy as it had been the night before, but my bed seemed even more inviting than usual. I had not slept at all yesterday night, out of the bubbling anxiety that I had felt while going over the plan for the final few times. But I knew that I could not go to sleep. not yet.
+I dropped off my bag and supplies, hiding them under my bed (essentially just two planks of wood with some cloth draped in between) and ran off into the centre of town to find an old friend of mine.
+
+The box, as expected, would not open if I tried to. The lid just would not budge, as I tried to pull it open and it, paradoxically, seemed as if the lid was part of the box itself, as if both were left unseperated in the whittling process. I began to worry that I had been duped, and that there was nothing of value in the box - something I knew that Welk was shrewd enough to do.
+
+I ran rather sluggishly to the market, where i knew that the stand of Hejj the Locksmith always stood. He had always presented himslef as a respectable craftsman, only using his skill to help those locked out of their house, or those needing a fitting for their shed. i knew for a fact, however that he had always worked with the guild. He made sure to make two keys for every lock he made, one for the customer, and the other for himself. He had one been a temporarty part of my team, as we had attempted to get into the bank-vault of Scithius the Grey, a local alderman of the Guild of Fire. Hejj was as shrewd as he was skillful, anf I knew that he could not open the box, nobody could.
+
+As I arrived at his stall, he was packing up - the market was closing for the day, and I gestured to him, using tyhe secret guild wink in order to let him know that I was here on some business. I had decided that I would try and play off the box as something I has stolen from a random house, and needed opened to give to my team leader.
+
+As I walked up to him, he smiled warmly. "What brings you hear today, Young Stuvlok?" he said, with a curious grin.
+"I need to have this box opened, and I thought that you would be able to help," I replied, trying to cover up both my fatigue and my anxiety.
+"Well then, let me see it." He walked over and took the box into his hands. He poured over it, every detail and evvery crevice seemingly being recoreded and though about.
+"Where did you find this, Stuvlok?" he looked at me with an apprehensive stare. I suddenly felt out of my depth, my mind flooded with a million regrets and recriminations, but I remembered to stay calm, and answered, "I was given it by my team leader to open, I think he stole it from the house of a tanner,"
+"Ok then. let me try to open it up." Hejj Looked at m suspiscously, I do not think he believed any of my story, but I knew him to be trustworthy, and that he would likely keep his lips shut. Anyway, there was little chance of the burglary getting out - imagine the embarrassement Welk would feel being stolen from - I do not think that he would be willing to put it out. 
+Hejj looked at the box carefully and after a while, his face lit up, He twisted the top around in a way I could not have expected, and then pushed in one direction.  The top of the box came off simply, and I found that in the centre was a small hollow, with a single key set into velvet lining.
+Hejj looked at me inquisitiveily, I felt that he was trying to search for some sort of lie or sign that I was not being entirely truthful to him, but He eventually gave up, and gave me the box. i gave him a silver piece, and went on my way.
+The sky was darkening, and the clouds had settled over me like some sort of blanket, and I found myself in that time in the evening when it is perfectly cool and everything seems possible.
+
+With a smile and a cheap snack from a street-vendor, I sauntered back to my hovel - with the box and key in my bag, and hope in my eyes.
+
+
+---

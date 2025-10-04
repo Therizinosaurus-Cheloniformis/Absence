@@ -1,0 +1,102 @@
++++
+title = "Chapter 19"
+date = "2025-01-20T17:54:34+01:00"
+#dateFormat = "2006-01-02" 
+showFullContent = false
+readingTime = false
+hideComments = false
++++
+
+The ladder was made of a slimy transparent material.
+It rose up into the low lying clouds, ascending at such a steep incline and with such vivacity that I immediately began to wonder of the consequences of slipping off of it at the point it plunged into the clouds above my head. I went up to it, and touched it. Wet. It had a thin layer of some sort of mucus-like film over all of it. I wanted to work out wht it was made of, but I did not want to dead breaking any bit of it, as I soon realised that I would inevitable need to climb up it.
+
+The sky was dark, the sun obscured by clouds so thick they almost seemed solid. I looked to Foxglove.
+"Did you know about this?" I asked her, perplexed by this abnormality in the otherwise ruggedly natural landscape.
+"No." She told me, seemingly entranced by the ladder's delicate features, each rung glistening in the little light that was present. I wondered whether it would be difficult to climb up it.
+
+"I Think I should go up." I said, moving closer to the ladder. Foxglove gave a confused glance, almost as if she felt some sort of betrayal.
+"Yes, and I will come with you." She said, insistent. She said the words slowly, almost as if she was speaking to a child. I did not know why or for what reason, but something seemed to snap inside of me when she stopped speaking. It was less about the words, and more about how she said them.
+
+"I don't think you need to go up. I'll go up alone." I said.
+I was the one who had been stolen by the witches, I was the one who had nobody left. I was the one with a bit of whatever the witches were stuck inside of me and controlling my mind. I should be the one to go up the ladder. I was mentally outraged. I did not know why, but the thought of going up with Foxglove just did not seem right.
+
+"I think it would be much safer if I went up with you, Stuvlok," She said, again in that tone that made me want to punch the ground. I knew I should not be thinking about any of this, but I could not control myself. It felt as if my emotions had gotten out of hand, as if they were now part of the physical body, uncontrollable. I felt like a puppet to their strings. 
+
+"Why do you want to go up there" I asked, insistent that I should go alone.
+
+"Because I want to see what there is up there. I also doubt that you will be able ot face the witches alone. More than that, though, I need to look for the pups." She said, putting one of her paws on the rung of the ladders.
+
+I thought about how o respond for a while, eventually coming up with the idea that I could first go up to scout out wherever the ladder led, and then come back down again before actually trying to defeat the witches, and then I could take Foxglove up. In reality, what I hoped would happen is that I would be able to ask the witches a few questions about myself and my history and what they wanted. I did not want to trust Foxglove with that information.
+
+"let me go up, and then I'll come straight down. I just want to see what is up there, make sure it is safe. I am much taller than you, so I would be able ot get to the top much more quickly, and come down faster. I am making sure it is safe." I said, trying my best to convince Foxglove with my words, though I knew that even if she did agree, it would only be out of giving up on the argument. I was sure that I did not need her help.
+
+"I could come up behind you on the ladder - I could hold onto your back." She told me, desperately trying tpo get me to agree with her, work out a compromise. I did not change my stance.
+
+"No, it would slow me down. Trust me." I said, and began to dump my pack and other items down my the ladder, preparing for the ascent.
+
+"Well, fine then," She said, with quite some animosity, "I will wait for you down here. How long should I wait until I come up after you?" She asked, and I felt a sense of jubilation. I was going to prove myself, show her that I did not need her help to get through a journey and accomplish my goals.
+"One day and one night." I said.
+
+I began to climb.
+
+Each rung of the ladder required a spider-like precision that I dared not forget to implement. Each foot had ot be gingerly placed on the rung, to make sure it did nto break, or that you did not slip off because of the lining. The lining, I soon found out, was actually alive. The entire ladder was some sort of mega-organism or at least part of it. The lining contained small vessels, which carried a sticky substance all across the ladder. The rungs had strong, transparent bone-like structures inside of them to give them rigidity, and the entire thing pulsed every so often, as more of the fluid was pumped around the ladder, and I assumed helped to keep its upright stance in some way, or transported nutrients to it. The secretions were ever so slightly acidic. WThey wore away at the other linings of my skin as I climbed, but eventually, I forgot about the pain, and kept climbing.
+
+Unlike my ascent of the tree, there were no sights to see, and no goal to aim for. I just kept climbing. Soon Foxglove and our gear became too small to even discern out of the landscape, and I began to get close to the cloud above the ladder. The ladder seemed ot plunge directly into the cloud, disappearing behind layers and layers of folds, rolls and lumps of the deep grey flesh that made up clouds. As I climbed, the air around me got significantly colder, and I soon began to see my breath coming out as plumes of smoke-like bursts.
+
+I climbed for what seemed like days, though I knew that it was very probably hours. Every step I took took me away from the relatively familiar, to a place I could scarcely even imagine, it was too far away from what I had expected, nothing natural, nothing bound by the forced of the same universe I was born in could have made such a structure. It suggested a different way or thinking, a plane where the rules that governed the universe could be melded and changed, ladders becoming living organisms, and clouds becoming something much more than collections of vapours of water.
+
+Once I got to the cloud, I expected to be able to pass through it easily, but I soon found that it had a transitory solidity to it. I touched it, and for a moment, it was as if I had touched a book bound in leather, like my father Sew used to make. The cloud depressed for a moment, before letting my hand through. I pushed through this section of cloud, until I saw clear, brilliant sunlight streaming in from above me. I was above the cloud.
+
+The cloud here was as solid as stone. I cautiously hauled myself up onto it so that I could stand up, and felt it to take a lot of energy to compress. The light from the sun above me was scalding pure, like boiling water, the heat was intense, and I forgot for a moment where I had come as my eyes adjusted to the surrounding environment. I looked around me. Nothing. An endless expanse of clear sky and pale grey. Emptiness, absolute absence other than the directions.
+
+As I began to look around, I soon began to feel my head throb. My eyes went hazy, and I crumpled under my own weight. The cloud was not soft, but razor-sharp. Tiny crystals of ice rubbed up against my face and shredded the outer layers of my skin. I would have screamed out, but the pain of the headache was too large for me to think or do anything. As My eyes darkened, I saw some sort of unimaginable dark thing pass above me, It looked as if ti was constantly changing shape and colour. It also seemed to be changing state of matter, though I could not quote tell its outline, and it seemed ot be at once both incredibly large, but also so small I could hold i tin my palm. My heart was thumping faster than It had ever before, and I wondered suddenly whether it was about to pop out of my chest. My blood raced, yet I was unable to get up. The headache somehow worsened, and I felt as if I was being compressed into a purely fat object, with no height or depth. I began to see the world around me as nothing but a line, and I got very, very confused. The headache seemed to change suddenly after that, and i saw the world as pure numbers. Every bump, every sharp incline was a curve I could describe. Every feeling I felt could be expressed as an expression. The pain on my face could have been calculated, the answer roughly equal to the colour of rotting meat.
+
+I swirled around in my own mind, forgetting my past, making up memories that had never happened and trying to wander into the future, but being held back by some unseen force. I went back to purely primal emotions, hunger, anger, happiness, lust, want, need, sadness. I thought about every grain of sand on every beach on every planet on every universe, and named each one something unique. I felt strangely empty, and saw a darkness in what must have been a dream that called to me.
+As I tried ot walk over to it, I was brought back to consciousness by the searing pain of my face. I could feel it again. The headache was gone. I stood up, and opened my eyes carefully again. I saw my hands caked in blood, and the cloud beneath where i had been standing having soaked in with a crimson that I could not bear ot look at.
+
+As I looked around, I saw that something had changed. In the middle of what seemed to be the endless plain of the cloud, though it had only been a small square when I had seen it from outside, There was a tree.
+
+The tree was a giant thing. It was so tall that it seemed to touch the sun. Its trunk was about as thick as a town is wide. It filled up most of my vision, but it was unmistakeably a tree.
+
+I ran up to it, and tried to inspect it, my eyes hungry for something tangible ot examine, and my mind's curiosity fuelled.
+
+The tree had a staircase carved into  it. Without really thinking it through, I began to tentatively climb into it. The tree's inside was surprisingly well lit, and I was able to see a few metres ahead of me at all times. I could not see the lightsource, and I did not care. I wanted to find out what was at the top.
+
+I got to something that looked to me like the floor of a building. I hopped off of the staircase, which ascended up so hight that it looked like a snail's shell from where I was sitting, as if it swirled into a singularity high above me.
+I looked around, and thought of something to ask. As this was the only place I knew in this emptiness, I figured that the witches must live somewhere around here.
+
+"I am here. Tell Me What I Want To know." I asked, screaming into the emptiness, and hearing it echoes by a thousand empty areas back to me in a cacophony of sound, chaotic yet all the same. No response. I had not expected one.
+
+As I walked towards the outer trunk of the tree, I heard a subtle crying coming from behind me. I turned around. It was something swaddled in a white cloth. I ran towards it.
+
+When I got to it, I found that it was a baby. Wea. Tightly wrapped in some sort of white linen, the baby girl was eerily silent. She looked at me with a sort of nervous indifference, and she seemed to be perpetually on the verge of crying as I watched her. I looked around myself, carefully checking for any sort of trap before I picked her up. She was deathly cold. I held her close to myself for a while, sitting on the floor to try and warm her up, though I only felt colder in the aftermath. I decided that as long as Wea was alive and fine, I could worry about low temperatures later. I felt a great sense of loss just looking at the little girl, and i did not know why. While I stared at her, I felt as if something important had been taken away from her, making her seem somewhat inhuman. I did not quite understand what it was, but I managed to do my best for her anyway, and held her carefully in my arms.
+
+I began to try to walk down the stairs, while making sure that Wea was not injured, when I remembered that if Wea was here, the otter pups that were taken must also have been here somewhere. There was nothing else on this floor, and the only other place I knew there to be any chance of finding the otter pup was up.
+I decided to walk up the staircase instead. I made sure to have wea carefully secured in the crook of my arm, as I trudged up the staircase.
+
+I got to the second floor.
+The sight soon drove me to tears, which I forced myself to fight through
+
+The floor was strewn with corpses, the ground stained red by years of blood. Most of the corpses seemed to have been horribly mutilated, to the point where I could not even recognise what type of animal they were. teeth littered the ground, and tinkled if you stepped on them. The smell was horrible, even worse than it had been on the lake. It was so overpowering that I began to cough, and pulled the cloth over Wea's nose to make sure that she would be able to smell less of it than I could.
+
+I was about to leave, when I saw that something was moving in amongst the carnage. I walked over to it, and saw that it was an otter pup. I sighed with relief, and picked it up. It held onto my arm with its eyes closed. I very quickly noticed that this otter pup was not as healthy as Wea had been. He was covered in congealed blood, and had lost a leg. The stump that remained had stopped bleeding, but stank of infection, and had been mauled terribly, so that the wound was uneven and craggy. The little pup held onto my arm so hard I thought that I might have to move it, but he loosened his grip soon enough. he did not make any sounds, and I could feel him shaking against me. I could feel his terror. As I walked back towards the staircase, I stumbled across a corpse that looked very similar to the otter pup I had just saved. The sight made my heart feel as if it was dropping down into an abyss I would never be able to get it out of.
+
+I looked around for any other living creatures, but found only rotting cadavers. I felt a strange rage bubble up inside of me when I saw all of this, but I had ot remember to keep it in check, so that I did not make any terrible mistakes.
+
+Suddenly, I hears something above me. It was similar to the strange amorphous shape I had seen in my dreams before, wispy in its outline, blending in to its surroundings, morphing and changing everything around it as it moved. It was a deep crimson, and dripped what I assumed to be blood as it passed across the tree, high above us. I hid behind a few of the larger bodies to make sure that it had not seen us, though I did not doubt that it already knew where we were.
+
+It was a witch.
+
+As it passed just over us, it let out what I can only describe as a cackle.
+
+It was less of a sound, and more of a thought, an emotion transmitted through the air. It made me want to die. It was a rough, deep mauve laugh of sorts that shook me and the children completely.  The pup Had begun to cry as we had ben hiding, but the cackle stopped him making any sounds at all, and a vacant expression filled the faces of both.
+
+I decided that the best thing to do for me was to run back to Foxglove as quickly as I could, and try to get the pup and Wea some treatment.
+I got to the staircase, and began to descend, only slightly slower because of the added weight. I made sure not to slip or fall, as it could have spelled disaster for all of us. I decided that my questions could wait till later, and that I needed to prioritize the children.
+
+As I was climbing, I looked up to see the Witch right above us, I almost collapsed, but I was able to keep standing, barely. A single drop of blood fell all the way down from the Witch's form, and splashed into my eye. My sight was tinged with blood, red and dark - it burned my eyes subtly, too, forcing me to blink often and try to cry to flush the blood out.
+
+Deciding not to look above me again, I climbed down the staircase, every step a new challenge for my body and my mind.
+
+
+---
